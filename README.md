@@ -1,0 +1,2 @@
+# StarsScam
+Dhdhdh
